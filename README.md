@@ -22,4 +22,4 @@ Pass it... and you're in. ✅
 
 Go hit the link. Explore it. Feel it.
 
-🔗 shreyashahire.me
+🔗 https://shreyashahire.me
